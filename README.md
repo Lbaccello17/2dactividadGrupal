@@ -1,2 +1,1 @@
-# 2dactividadGrupal
-2da act
+Luciano Manuel Baccello
